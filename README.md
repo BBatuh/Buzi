@@ -6,3 +6,5 @@ hellöö
 genç kızsın harcarsın
 
 hayy
+ktlmssssssss
+merve
